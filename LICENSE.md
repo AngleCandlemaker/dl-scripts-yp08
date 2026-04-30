@@ -1,4 +1,4 @@
-
+rare deadlock scripts Scripts | instant hero lock-on + instant hero cleave is the best deadlock scripts scripts, featuring instant hero lock-on and instant hero cleave. Safe,
 
 
 
